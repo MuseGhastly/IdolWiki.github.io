@@ -1,0 +1,1 @@
+# IdolWiki.github.io
